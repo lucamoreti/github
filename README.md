@@ -1,2 +1,2 @@
 # github
-the first repo of mine
+the first repo of mine yes mine!
